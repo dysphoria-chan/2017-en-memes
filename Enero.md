@@ -9,9 +9,6 @@ Enero 2017
  
 (...)
  
-## Overall memes
-N/A
- 
 ## Meme del mes
 TBD
  
