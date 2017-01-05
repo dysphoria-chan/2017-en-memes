@@ -7,6 +7,9 @@ Enero 2017
 ## 3 de enero
  - Photoshops del cartel de Holywood
  
+## 4 de enero
+ - Aumento de la gasolina en México
+ 
 (...)
  
 ## Meme del mes
