@@ -10,6 +10,9 @@ Enero 2017
 ## 4 de enero
  - Aumento de la gasolina en México
  
+## 10 de enero
+ - Crunchyroll awards (Yuri on Ice "Best Animation")
+
 (...)
  
 ## Meme del mes
