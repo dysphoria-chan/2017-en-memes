@@ -10,11 +10,20 @@ Enero 2017
 ## 4 de enero
  - Aumento de la gasolina en México
 
+## 5 de enero
+ - Saqueos en México
+
+## 9 de enero
+ - Cosplay de Goofy
+
 ## 10 de enero
  - Crunchyroll awards (Yuri on Ice "Best Animation")
 
 ## 13 de enero
  - Presentación de Nintendo Switch
+
+## 14 de enero
+ - Maxime - eNGLISH (publicidad rara de un negro)
 (...)
  
 ## Meme del mes
