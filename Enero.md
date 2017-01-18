@@ -22,8 +22,14 @@ Enero 2017
 ## 13 de enero
  - Presentación de Nintendo Switch
 
+## 15 de enero
+ - Dad Bowser
+
 ## 14 de enero
  - Maxime - eNGLISH (publicidad rara de un negro)
+ 
+## 18 de enero 
+ - Tiroteo en escuela de Monterrey, México
 (...)
  
 ## Meme del mes
