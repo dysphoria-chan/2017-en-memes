@@ -31,6 +31,10 @@ Enero 2017
 ## 18 de enero 
  - Tiroteo en escuela de Monterrey, México
  - Italian army (u otro país)
+ 
+## 20 de enero
+ - Toma de poder de Donald Trump
+ - Muerte de Gabe the Dog
 
 (...)
  
