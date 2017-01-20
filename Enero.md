@@ -30,6 +30,8 @@ Enero 2017
  
 ## 18 de enero 
  - Tiroteo en escuela de Monterrey, México
+ - Italian army (u otro país)
+
 (...)
  
 ## Meme del mes
