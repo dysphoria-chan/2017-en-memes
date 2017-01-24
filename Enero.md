@@ -38,7 +38,9 @@ Enero 2017
 
 ## 21 de enero
  - Memes "positivos"
-(...)
+ 
+## 22 de enero
+ - Obama - Trump - (...)
  
 ## Meme del mes
 TBD
