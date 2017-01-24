@@ -36,6 +36,8 @@ Enero 2017
  - Toma de poder de Donald Trump
  - Muerte de Gabe the Dog
 
+## 21 de enero
+ - Memes "positivos"
 (...)
  
 ## Meme del mes
