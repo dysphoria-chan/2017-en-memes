@@ -42,6 +42,9 @@ Enero 2017
 ## 22 de enero
  - Obama - Trump - (...)
  
+## 23 de enero
+ - Chumlee en Little Witch Academia
+ 
 ## Meme del mes
 TBD
  
