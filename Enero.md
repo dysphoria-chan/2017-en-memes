@@ -45,6 +45,9 @@ Enero 2017
 ## 23 de enero
  - Chumlee en Little Witch Academia
  
+## 24 de enero
+ - Comercial de Trivago
+
 ## Meme del mes
 TBD
  
