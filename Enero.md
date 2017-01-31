@@ -47,6 +47,9 @@ Enero 2017
  
 ## 24 de enero
  - Comercial de Trivago
+ 
+## 30 de enero
+ - "Consumir producto mexicano"
 
 ## Meme del mes
 TBD
