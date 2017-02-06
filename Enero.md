@@ -51,6 +51,11 @@ Enero 2017
 ## 30 de enero
  - "Consumir producto mexicano"
 
-## Meme del mes
-TBD
- 
+## 31 de enero
+ - Virgin Killer Sweater
+
+Febrero 2017
+===========
+
+## 6 de febrero
+- "You can't X if you not Y"
