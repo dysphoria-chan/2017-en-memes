@@ -2,7 +2,7 @@ Febrero 2017
 ===========
 
 ## 4 de febrero
-- Roll Safe (You can't X if you not Y)
+- Roll Safe (You can't X if you don't Y)
 
 ## 6 de febrero
 - Patricio y Mantarraya
@@ -10,5 +10,8 @@ Febrero 2017
 ## 7 de febrero 
  - Supongamos que X (No lo es, pero supongamos)
 
-## 10 de febrero
- - Paloma de Facebook
+## 10 de enero
+ - Anime en Disney XD
+
+## 11 de febrero
+ - Trash Doves
