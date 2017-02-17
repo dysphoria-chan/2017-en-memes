@@ -15,3 +15,9 @@ Febrero 2017
 
 ## 11 de febrero
  - Trash Doves
+
+## 14 de febrero
+ - Soldados caídos de Día de San Valentín
+ 
+# 15 de febrero
+ - Filipino con nombre largo
