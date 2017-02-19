@@ -19,5 +19,11 @@ Febrero 2017
 ## 14 de febrero
  - Soldados caídos de Día de San Valentín
  
-# 15 de febrero
+## 15 de febrero
  - Filipino con nombre largo
+
+## 16 de febrero
+ - Who, Whom, Whom'st, Whom'st'd, Whom'st'd've
+ 
+## 17 de febrero
+ - Fifty Shades Darker link
