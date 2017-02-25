@@ -36,3 +36,6 @@ Febrero 2017
  
 ## 23 de febrero
  - ntk me hakiaron 0:
+
+# 24 de febrero
+ - AI-chan
