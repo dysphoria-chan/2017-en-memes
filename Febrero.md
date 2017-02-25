@@ -34,3 +34,5 @@ Febrero 2017
 ## 21 de febrero
  - Dorei to no Seikatsu -Teaching Feeling-
  
+## 23 de febrero
+ - ntk me hakiaron 0:
