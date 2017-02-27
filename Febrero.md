@@ -37,5 +37,11 @@ Febrero 2017
 ## 23 de febrero
  - ntk me hakiaron 0:
 
-# 24 de febrero
- - AI-chan
+## 24 de febrero
+ - Kizuna Ai
+
+## 26 de febrero
+ - Oscars 2017
+ - Páginas de "Cosas"
+ 
+  
