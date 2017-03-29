@@ -20,8 +20,18 @@ Marzo 2017
  - Mass Effect Andromeda
 
 ## 20 de marzo
- - Amélie
+ - Amelie
 
 ## 22 de marzo
  - ¿A qué famoso te pareces?
+ 
+## 23 de marzo
+ - Mars Aguirre
+
+## 27 de marzo
+ - Salida de Amelie de Master Chef 
+ 
+## 29 de marzo
+ - Muerte de Club Penguin
+
  
