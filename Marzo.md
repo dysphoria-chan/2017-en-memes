@@ -20,7 +20,7 @@ Marzo 2017
  - Mass Effect Andromeda
 
 ## 20 de marzo
- - Amelie
+ - Hi Stranger
 
 ## 22 de marzo
  - ¿A qué famoso te pareces?
