@@ -7,4 +7,5 @@ Abril 2017
 ## 5 de abril
  - ¿Me estás retando?
  
- 
+## 6 de abril
+ - Bombardeo de E.E.U.U. a Siria
