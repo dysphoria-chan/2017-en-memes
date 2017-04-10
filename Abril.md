@@ -9,3 +9,6 @@ Abril 2017
  
 ## 6 de abril
  - Bombardeo de E.E.U.U. a Siria
+
+## 9 de abril
+ - Las chaparritas son mas peligrosas que un sicario
