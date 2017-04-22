@@ -17,7 +17,10 @@ Abril 2017
 ## 10 de abril
  - Persona 5 Battle
 
-## 12 de abril
+## 13 de abril
+ - Descontinuación del NES Mini
+
+## 15 de abril
  - Cocaine, Marijuana, Beer
 
 ## 19 de abril
