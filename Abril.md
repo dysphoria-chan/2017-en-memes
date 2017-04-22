@@ -16,3 +16,12 @@ Abril 2017
 
 ## 10 de abril
  - Persona 5 Battle
+
+## 12 de abril
+ - Cocaine, Marijuana, Beer
+
+## 19 de abril
+ - Censo chileno de 2017
+
+## 20 de abril
+ - Touhou 16/Cirno morena
