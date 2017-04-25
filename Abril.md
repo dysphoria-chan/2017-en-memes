@@ -28,3 +28,6 @@ Abril 2017
 
 ## 20 de abril
  - Touhou 16/Cirno morena
+
+## 24 de abril
+ - Terremoto en Valparaíso, Chile
