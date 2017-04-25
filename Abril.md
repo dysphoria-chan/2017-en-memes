@@ -29,5 +29,8 @@ Abril 2017
 ## 20 de abril
  - Touhou 16/Cirno morena
 
+## 22 de abril
+ - Wendy's
+
 ## 24 de abril
  - Terremoto en Valparaíso, Chile
