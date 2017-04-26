@@ -34,3 +34,6 @@ Abril 2017
 
 ## 24 de abril
  - Terremoto en Valparaíso, Chile
+
+## 25 de abril
+ - Uy un gay
