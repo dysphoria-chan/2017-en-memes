@@ -37,3 +37,6 @@ Abril 2017
 
 ## 25 de abril
  - Uy un gay
+
+## 27 de abril
+ - La Ballena Azul en Latinoamérica
