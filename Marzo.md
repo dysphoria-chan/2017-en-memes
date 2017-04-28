@@ -7,6 +7,9 @@ Marzo 2017
 ## 4 de marzo
  - Lamer juegos de Switch
  
+## 8 de marzo
+ - La Ballena Azul
+ 
 ## 10 de marzo
  - Mario's Day
 
