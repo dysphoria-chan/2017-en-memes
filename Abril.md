@@ -40,3 +40,6 @@ Abril 2017
 
 ## 27 de abril
  - La Ballena Azul en Latinoamérica
+ 
+## 28 de abril
+ - Grape-kun waifu (pingüino con waifu)
