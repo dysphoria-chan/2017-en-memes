@@ -24,4 +24,10 @@ Mayo 2017
 ## 8 de mayo
  - Regreso de "Me enorgullece"
  
+## 9 de mayo
+ - Anime spagetti
+ 
+## 12 de mayo
+ - Touch this
+ 
 
