@@ -14,6 +14,7 @@ Mayo 2017
 
 ## 4 de mayo
  - La Ballena Azul en la Rosa de Guadalupe/El Reto Suicida
+ - Comer piña
 
 ## 6 de mayo
  - Pepe is (totally fucking) dead
