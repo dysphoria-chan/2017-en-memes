@@ -16,6 +16,9 @@ Mayo 2017
  - La Ballena Azul en la Rosa de Guadalupe/El Reto Suicida
  - Comer piña
 
+# 5 de mayo
+ - Fidgit Spin
+
 ## 6 de mayo
  - Pepe is (totally fucking) dead
 
@@ -33,4 +36,10 @@ Mayo 2017
  
 ## 13 de mayo
  - [We](https://img.buzzfeed.com/buzzfeed-static/static/2017-05/13/13/asset/buzzfeed-prod-fastlane-02/sub-buzz-8200-1494697854-3.png?downsize=715:*&output-format=auto&output-quality=auto)
+ 
+## 16 de mayo
+ - La histopria de Eduardo y Tamara en Whatsapp
+ 
+## 17 de mayo
+ - Villanos
 
