@@ -18,6 +18,7 @@ Mayo 2017
 
 # 5 de mayo
  - Fidgit Spin
+ - Mocking SpongeBob
 
 ## 6 de mayo
  - Pepe is (totally fucking) dead
@@ -38,8 +39,11 @@ Mayo 2017
  - [We](https://img.buzzfeed.com/buzzfeed-static/static/2017-05/13/13/asset/buzzfeed-prod-fastlane-02/sub-buzz-8200-1494697854-3.png?downsize=715:*&output-format=auto&output-quality=auto)
  
 ## 16 de mayo
- - La histopria de Eduardo y Tamara en Whatsapp
+ - La histoia de Eduardo y Tamara en Whatsapp
  
 ## 17 de mayo
  - Villanos
-
+ 
+## 20 de mayo
+ - [Final abrupto](https://scontent.fpbc1-1.fna.fbcdn.net/v/t1.0-9/18619898_1927144540865402_7299260766241708371_n.jpg?oh=506760b31b7f90eea75f587f493219b0&oe=59BAF46C)
+ - Final de Samurai Jack
