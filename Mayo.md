@@ -22,6 +22,7 @@ Mayo 2017
 
 ## 6 de mayo
  - Pepe's Death
+ - Polémica de Jack y Ashi
 
 ## 7 de mayo
 - Toretto
@@ -53,4 +54,4 @@ Mayo 2017
 
 ## 23 de mayo
  - Ataque terrorista en Manchester
- - Nuevas reglas de Facebook permiten publicar desnudos
+ - Nuevas reglas de Facebook permiten publicar pechos descubiertos
