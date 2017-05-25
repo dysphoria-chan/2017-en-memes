@@ -44,6 +44,7 @@ Mayo 2017
 
 ## 17 de matzo
  - Muerte de Chris Cornell
+ - Chilaquil, el perro lobo
  
 ## 18 de mayo
  - Villanos
