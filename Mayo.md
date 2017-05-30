@@ -45,6 +45,9 @@ Mayo 2017
 ## 17 de matzo
  - Muerte de Chris Cornell
  - Chilaquil, el perro lobo
+
+## 19 de mayo
+ - "Los dioses son reales si crees en ellos..."
  
 ## 18 de mayo
  - Villanos
@@ -56,3 +59,6 @@ Mayo 2017
 ## 23 de mayo
  - Ataque terrorista en Manchester
  - Nuevas reglas de Facebook permiten publicar pechos descubiertos
+
+## 28 de mayo
+ - Types of gf
