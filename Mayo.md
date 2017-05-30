@@ -41,7 +41,8 @@ Mayo 2017
  
 ## 16 de mayo
  - La historia de Eduardo y Tamara en Whatsapp
-
+ - The Emoji Movie trailer
+ 
 ## 17 de matzo
  - Muerte de Chris Cornell
  - Chilaquil, el perro lobo
