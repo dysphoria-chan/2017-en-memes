@@ -43,7 +43,7 @@ Mayo 2017
  - La historia de Eduardo y Tamara en Whatsapp
  - The Emoji Movie trailer
  
-## 17 de matzo
+## 17 de mayo
  - Muerte de Chris Cornell
  - Chilaquil, el perro lobo
 
@@ -63,3 +63,6 @@ Mayo 2017
 
 ## 28 de mayo
  - Types of gf
+
+## 30 de mayo
+ - [covfefe] (http://www.thegoldwater.com/static/media_store/51e8905c5af2c6fb2a9e0c960a61f16c5138d84bc283fb487152d8eb8325cddf.png)
