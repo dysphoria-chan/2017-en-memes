@@ -8,4 +8,4 @@ Junio 2017
  - DiCaprio y Peña Nieto
  
 ## 9 de junio
- - Pride reaction
+ - Gay Pride reaction
