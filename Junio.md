@@ -9,3 +9,6 @@ Junio 2017
  
 ## 9 de junio
  - Gay Pride reaction
+
+## 10 de junio
+ - Muerte de Adam West
