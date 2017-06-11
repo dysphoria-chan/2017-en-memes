@@ -12,3 +12,4 @@ Junio 2017
 
 ## 10 de junio
  - Muerte de Adam West
+ - The floor is lava
