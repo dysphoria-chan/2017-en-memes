@@ -16,3 +16,9 @@ Junio 2017
 
 ## 12 de junio
  - Beyond Good & Evil 2
+
+## 13 de junio
+ - Nintendo won the E3
+ - Metroid Prime 4
+ - Super Mario Odissey
+
