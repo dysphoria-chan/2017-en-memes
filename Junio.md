@@ -18,7 +18,10 @@ Junio 2017
  - Beyond Good & Evil 2
 
 ## 13 de junio
- - Nintendo won the E3
+ - "Nintendo won the E3"
  - Metroid Prime 4
  - Super Mario Odissey
  - La Mars con un condón en la nariz
+
+# 14 de junio
+ - Controversia de Mario mexicano (se ve bien chingon)
